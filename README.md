@@ -12,5 +12,4 @@ Meu nome é Cauã Prudencio da Silveira
   
   @silveirazz14
 
-![](https://tenor.com/pwfeTZyKkLx.gif)
-
+  ![](https://tenor.com/pwfeTZyKkLx.gif)
